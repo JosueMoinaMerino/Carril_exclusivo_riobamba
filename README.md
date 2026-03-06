@@ -1,2 +1,0 @@
-# Carril_exclusivo_riobamba
-Carril_exclusivo_riobamba
